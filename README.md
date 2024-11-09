@@ -3,7 +3,7 @@ Havacılık ve Uzay Mühendisi
 
 📍 Türkiye
 📧 yigitgunelbusiness@gmail.com
-LinkedIn | Linktree
+🌐https://linktr.ee/aliyigitgunel
 
 **🌟 Hakkımda**
 Kalite yönetim sertifikalarına sahip, analitik düşünme yeteneği gelişmiş ve sonuç odaklı bir Havacılık ve Uzay Mühendisiyim. Özellikle 6 Sigma ve AS9100 standartları üzerine odaklanarak süreç iyileştirme alanında kapsamlı deneyim kazandım. Müşteri hizmetleri ve finans sektörlerindeki deneyimlerim, iletişim becerilerimi ve analiz yeteneklerimi güçlendirmemde etkili oldu. Şu anda Java programlama konusunda kendimi geliştiriyor ve bu alandaki projelere katkıda bulunmaya hazır durumdayım.
